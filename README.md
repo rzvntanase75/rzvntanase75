@@ -1,4 +1,4 @@
-# 🏄‍♂️ Razvan Tanase
+# 🏄‍ Hi there, I'm Razvan.
 
 
 
